@@ -29,7 +29,7 @@ La masa de chispas de chocolate se puede congelar para hornear otro dia.
 Al salir del horno, se puede usar un molde de cortador de galletas circular para redondear perfectamente las galletas aun cuando estan calientes y dociles haciendo movimientos circulares topando con los bordes de la galleta. En lugar de un
 cortador de galletas se puede usar cualquier cosa que sea circular como la boca de una taza que sea mas grande que el circulo de la galleta.  
 
-Las galletas se pueden comer con unos granitos de sal gruesa puestos por encima de la galleta para resaltar sabores.  
+Al recien salir del horno se puede poder escamas de sal gruesa por encima de la galleta para resaltar sabores.  
 
 ## Utensilios
 
